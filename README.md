@@ -1,0 +1,3 @@
+red velvet cake is the recipie of a red cake whose red colour is given by adding red food colour it is a very dilicious cake.It's colour is  very beautiful type of scarlet red  colour.this cake is mainily made for loved ones l and my younger sister made this cake for our brotherss on raksha bandhan.
+it is a cake made with buttermilk,cream cheese which gives a very nice taste to this cake.
+Red velvet is made with cocoa powder, vinegar and buttermilk. The chemical reaction between these ingredients help give the cake a deep maroon color that is often enhanced by extra food coloring
